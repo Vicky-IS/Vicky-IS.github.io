@@ -1,1 +1,0 @@
-# Vicky-IS.github.io
